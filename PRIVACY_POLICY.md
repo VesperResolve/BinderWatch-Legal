@@ -84,7 +84,7 @@ We may update this Privacy Policy from time to time. Updates will be reflected b
 If you have any questions about this Privacy Policy, please contact:
 
 **BinderWatch Support**
-*(Add your contact email here)*
+vesperesolve@gmail.com
 
 ---
 
