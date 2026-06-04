@@ -113,7 +113,7 @@ These Terms are governed by the laws of the State of California, United States, 
 If you have questions about these Terms, please contact:
 
 **BinderWatch Support**
-*(Add your contact email here)*
+vesperesolve@gmail.com
 
 ---
 
